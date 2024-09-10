@@ -25,7 +25,7 @@ and will continue building off of that myself and with support from you, the com
 What do you think? ;3 <3333333333
 
 **Discord**
-Please join the discord here: [Discord Server](https://discord.gg/gV9up875) to stay up to date!
+Please join the discord here: [Discord Server](https://discord.gg/4qx6XMUEj8) to stay up to date!
 
 
 ![alt text](https://i.pinimg.com/originals/e1/29/98/e12998b73503f38979b2c267b489fc9b.gif)
