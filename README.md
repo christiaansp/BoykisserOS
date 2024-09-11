@@ -34,3 +34,4 @@ Please join the discord here: [Discord Server](https://discord.gg/4qx6XMUEj8) to
 # New progress!!  
 
 We finally started work on boykisser OS. We now mostly have a "Placeholder OS" but some basics are there. And again i'm not experienced at all in this, i realy dont know what im doing :D Anyways *boykissers drop the mic*
+Also check out the sick website mr turkish man made (Doğukan) [epicwebsite](https://boykisseros.glitch.me/)
