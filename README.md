@@ -29,3 +29,8 @@ Please join the discord here: [Discord Server](https://discord.gg/4qx6XMUEj8) to
 
 
 ![alt text](https://i.pinimg.com/originals/e1/29/98/e12998b73503f38979b2c267b489fc9b.gif)
+
+
+# New progress!!  
+
+We finally started work on boykisser OS. We now mostly have a "Placeholder OS" but some basics are there. And again i'm not experienced at all in this, i realy dont know what im doing :D Anyways *boykissers drop the mic*
